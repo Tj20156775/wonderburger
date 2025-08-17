@@ -1,3 +1,6 @@
 top bun
-meat patty(cindy)
+pickles - todd 1st
+
+meat patty - cindy 3rd
 bottom bun
+
